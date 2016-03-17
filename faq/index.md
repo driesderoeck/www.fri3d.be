@@ -12,7 +12,7 @@ honger blijft zitten.
 ## Wanneer gaat het kamp door?
 
 Het kampprogramma zal beginnen op **zaterdag 13 augustus** in de voormiddag,
-tot en met **>maandag 15 augustus** (een vrije dag!), in de namiddag.
+tot en met **maandag 15 augustus** (een vrije dag!), in de namiddag.
 
 We verwachten de meeste kampeerders vrijdagavond 12 augustus, na het avondeten,
 om de tenten op te stellen en het kamp te verkennen.
